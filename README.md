@@ -11,7 +11,7 @@
     - Metido siempre en polémica
 ### Una de las frases más icónicas de MARVEL, fue dicha por Tony Stark:
 **_La verdad es que...Yo soy Iron Man_**
-![Iron Man](https://www.reddit.com/r/ironman/comments/1sobvmb/what_is_your_favourite_picture_or_photo_of_iron/)]
+![Iron Man](https://preview.redd.it/what-is-your-favourite-picture-or-photo-of-iron-man-v0-d3a7ixhhetvg1.jpeg?width=1920&format=pjpg&auto=webp&s=0cbc69ea537c223cb7d971bc1b1b006e9f2e7dfe)
 
 
 
