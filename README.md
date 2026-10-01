@@ -17,6 +17,7 @@
    - Dios del trueno
    - Hijo de Odin rey de Asgard
    - Heredero al trono
+![Thor](imagen/thor.jpg)
 
 
 
