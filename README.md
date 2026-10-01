@@ -13,5 +13,11 @@
 **_La verdad es que...Yo soy Iron Man_**
 ![Iron Man](https://preview.redd.it/what-is-your-favourite-picture-or-photo-of-iron-man-v0-d3a7ixhhetvg1.jpeg?width=1920&format=pjpg&auto=webp&s=0cbc69ea537c223cb7d971bc1b1b006e9f2e7dfe)
 
+3. **Thor**
+   - Dios del trueno
+   - Hijo de Odin rey de Asgard
+   - Heredero al trono
+
+
 
 
