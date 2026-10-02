@@ -22,6 +22,8 @@
 
 ![Thor](imagen/thor.jpg)
 
+### Para más información
+[Informacion](documento.md)
 
 
 
